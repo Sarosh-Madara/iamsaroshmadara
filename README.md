@@ -7,3 +7,5 @@ Sarosh Madara Portfolio
 📫 How to reach me: Twitter - @Muhammadsarosh2 
 😄 Pronouns: He/His
 ⚡ Fun fact: I spend almost 12 hours on my laptop for coding.
+
+Started working for own startup
